@@ -1,1 +1,15 @@
-Cartella per gli screenshots
+Screenshot_20250418_235710_Glovo Couriers.jpg
+Screenshot_20250419_000140_Glovo Couriers.jpg
+Screenshot_20250420_125825_Glovo Couriers.jpg
+Screenshot_20250420_125834_Glovo Couriers.jpg
+Screenshot_20250420_205812_Glovo Couriers.jpg
+Screenshot_20250420_211253_Glovo Couriers.jpg
+Screenshot_20250420_211304_Glovo Couriers.jpg
+Screenshot_20250425_193542_Glovo Couriers.jpg
+Screenshot_20250425_195648_Glovo Couriers.jpg
+Screenshot_20250425_195655_Glovo Couriers.jpg
+Screenshot_20250425_202356_Glovo Couriers.jpg
+Screenshot_20250425_203224_Glovo Couriers.jpg
+Screenshot_20250425_203245_Glovo Couriers.jpg
+Screenshot_20250425_214139_Glovo Couriers.jpg
+Screenshot_20250425_214145_Glovo Couriers.jpg
